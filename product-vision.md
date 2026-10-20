@@ -1,5 +1,5 @@
 ### FOR 
-⋅⋅*employees with busy schedule*⋅⋅
+*employees with busy schedule*
 ### WHO 
 *are required to be present at multiple places at once*
 ### PRODUCT NAME 
